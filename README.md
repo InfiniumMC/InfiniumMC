@@ -1,7 +1,7 @@
-- 👋 Infinium SMP
+- ♾️ Infinium SMP
+
+- Black Holes ahead
 
 - ¿The Void?
 
-- ¿Super Nova?
-
-- Discord: 
+- Discord: Soon...
